@@ -1,8 +1,4 @@
-# TONY UR GITHUB ISNT COOL MY IS MUCH COOLIER 😈😈😈😈
-
-ill do this shitty gh i swear
-
-im hiding everyone with h*mestuck skin. and no, ill not unhide you
+# IN VERY BIG WIP.
 
 https://ru.pinterest.com/HarveyTapeworm/william-woodiam-hyperfix/ oh mt fucking god
 
